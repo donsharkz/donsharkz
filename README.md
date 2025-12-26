@@ -11,7 +11,7 @@ Please feel free to stay, explore, and get comfortable here.
 
 ✧ Pony Town :
 
-»-→ I use 360 models to create pony cosplays. You can always find them everywhere in the internet.
+»-→ I use 360 models as basis to create pony cosplays. You can always find them everywhere in the internet.
 
 »-→ C+H is always okay. I enjoy company while idling or hanging around.
 
