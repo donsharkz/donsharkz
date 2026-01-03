@@ -10,7 +10,9 @@
 
 ![Profile views](https://komarev.com/ghpvc/?username=vielani&label=viewers%20wowow&color=050505&style=flat)
 
-vie loves you !! , everything you need is in my carrd
+`vie ♡ you !!` 
+
+everything you need to know abt me is in my carrd
 
 
 <div align="center">
