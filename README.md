@@ -15,7 +15,7 @@ vie loves you !! , everything you need is in my carrd
 
 <div align="center">
   
-→ [![visit my carrd meoww](https://img.shields.io/badge/★%20-%23FFFFFF?style=flat)](https://vielani.carrd.co)
+[![visit my carrd meoww](https://img.shields.io/badge/★%20-%23FFFFFF?style=flat)](https://vielani.carrd.co)
 
 
 
