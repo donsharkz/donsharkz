@@ -13,7 +13,7 @@
 ![Profile views](https://komarev.com/ghpvc/?username=vielani&label=cuties%20&color=F5BFC9&style=plastic)
 
 
-(get me to 6767 views ! 👆, dm the ss)
+(GOAL: 6767 views ! 👆, dm the ss)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Nunito&pause=1000&color=F5BFC9&center=true&vCenter=true&width=600&lines=vie+loves+you+♡;everything+you+need+to+know+abt+me+is+in+my+carrd+below)](https://git.io/typing-svg)
 
