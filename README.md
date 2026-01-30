@@ -37,5 +37,4 @@
 special mention my lovely friends (^o^)!! 
 
 
-<sup><sub> ivvii, kerv, kku, ruby, veve, kojako, mar, seuta, ires, selene (hope you both see this hehe) AAAND every one of my friends who accompanied and been with me in my highs and lows, I LOVE YALL </sub></sup>
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=1000&color=FFB6E5F6&width=435&lines=ivvii%2C+kerv%2C+kku%2C+ruby%2C+kojako%2C+veve;+seuta%2C+mar%2C+ires%2C+selene%2C+and+lastly;+you+reading+this+!!+%E2%99%A1;I+love+yall+4+being+with+me++;both+highs+and+lows+%E2%99%A1+stay+positive)](https://git.io/typing-svg)
