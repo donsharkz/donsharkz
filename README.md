@@ -11,10 +11,10 @@
 
 <div align="center">
 
-![Profile views](https://komarev.com/ghpvc/?username=vielani&label=sharks%20&color=4F6FFF&style=plastic)
+![Profile views](https://komarev.com/ghpvc/?username=vielani&label=sharks%20&color=D9B389&style=square)
 
   
-[![visit my carrd](https://img.shields.io/badge/carrd%20-%23FFFFFF?style=flat)](https://vielani.carrd.co)
+[![visit my carrd](https://img.shields.io/badge/carrd%20-%23000000?style=plastic)](https://vielani.carrd.co)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&bar_color_cover=false&bar_color=67c360)](https://github.com/kittinan/spotify-github-profile)
